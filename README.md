@@ -1,0 +1,58 @@
+# TWICE – STRAWBERRY
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+今夜 月は赤い Ah ah 不思議な夜
+会ってた時の余韻 忘れたくない Hah
+急に近づいて 見つめるから
+体中が熱くなってた No way
+ため息ばかりで 乱されてる まだ
+時間戻してたい Midnight
+眠れないほど 叩く鼓動
+あの瞬間で時を止めてたい
+ふたつの影 かさなるまで
+Strawberry moonlight
+Wishing moon 叶えてよ この恋を
+Addicted to you 髪も指先も
+あなたを意識してる
+心の全ては見せないわ
+Cuz I know that
+明日また会える?って
+言いかけて やめたの
+追いかけたら 夢中で ただ夢中で
+逃げるでしょ? 恋はいつでも
+Let me know
+Hey, won't you let me know
+帰り際したHug
+What are you thinking now?
+探して 見つけて 二人のHide＆Seek
+何度 傷ついても また恋する
+綺麗な花に生まれ変わって Oh mind
+冷たくされたり 優しくされたり
+掴みきれないの You are...
+もどかしい距離 飛び越えて
+あの瞬間が始まりだから
+愛し方を教えて 今
+Strawberry moonlight
+*
+Wishing moon 叶えるわ この恋を
+予言なら 明日の私は
+あなたに会いに走る
+心に火をつけてしまった
+You don't know me
+早く見抜いてよ 危険な恋の炎
+追いかけてる 夢中で ただ夢中で
+気づいたら あなたしかいない
+You're special to me
+Only you are seen
+出会えたことで変わるの
+Oh, my destiny
+All I need is you
+All I need is you
+そばにいて
+*Repeat
+Wishing moon 叶えるわ この恋を
+予言なら 明日の私は
+愛を手にしてる
+```
